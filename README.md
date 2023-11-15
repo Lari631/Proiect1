@@ -1,2 +1,3 @@
 # Proiect1
 Muntean Larisa, informatica romana
+Link prezentare video: https://ubbcluj-my.sharepoint.com/:v:/g/personal/larisa_maria_muntean_stud_ubbcluj_ro/EZruajDTYkZPju--TTkQT1oBomz9UN7i-VQh3AYJ3gcktg?e=Eap9X3&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZyIsInJlZmVycmFsQXBwUGxhdGZvcm0iOiJXZWIiLCJyZWZlcnJhbE1vZGUiOiJ2aWV3In19
